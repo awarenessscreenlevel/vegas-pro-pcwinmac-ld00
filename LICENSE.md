@@ -1,4 +1,4 @@
-# 
+# Natif Vegas Pro extensions pour Mac OS | Exclusif Vegas Pro extensions pour PC Windows. Avec intégration du chat et modèles de projet — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
